@@ -1,3 +1,4 @@
+
 Pourquoi ce titre ?
 
 J'avais pensé à « pensées d'un midwit », mais appeler "pensées ou réflexions" m'oblige à ne
